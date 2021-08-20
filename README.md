@@ -1,2 +1,2 @@
 # demoSoftwareStudio
-demo for software
+i wanna die
